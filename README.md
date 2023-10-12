@@ -1,1 +1,0 @@
-# ariisrael.com
